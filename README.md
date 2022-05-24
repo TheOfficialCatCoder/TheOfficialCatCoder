@@ -1,4 +1,6 @@
-### Here is What I'm Working On
+### About Me
+
+Here are some things about me :D
 
 - 🔭 I’m currently working on ... my youtube channel
 - 🌱 I’m currently learning ... how to make better videos
